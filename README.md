@@ -2,6 +2,8 @@
 
 **`Aspiring Software Developer`**
 
+Hello! I'm fc-000, you can call me 'efsi' or simply Fel. I am a sophomore IT student curiously navigating my way through tech ˚₊۶ৎ˙⋆
+
 ---
 ### 🎀 Languages and Tools
 
